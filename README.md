@@ -4,6 +4,6 @@
 - 🌱 I’m currently learning DATA
 - 👯 I’m looking to collaborate on DATA
 - 🤔 I’m looking for help with DATA
-- 💬 Ask me about ARK DATA STUDIOS
+- 💬 Ask me about DATA
 - ⚡ Fun fact: I love DATA
 
